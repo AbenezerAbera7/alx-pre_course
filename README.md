@@ -1,1 +1,1 @@
-not empty
+Nothing is IMPOSSIBLE!
